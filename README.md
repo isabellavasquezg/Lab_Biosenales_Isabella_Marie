@@ -4,3 +4,5 @@ Laboratorio Bioseñales grupo V12-2
 Marie Anne Johanna Bernal Diaz C.C 1003894043
 
 Isabella Vásquez García C.C.1000438341
+
+Grupo 2
